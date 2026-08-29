@@ -7,11 +7,10 @@
 
 <div align="center"> 20 y.o
 <div align="center"> basic DNI + darkshippers/proshippers stay the fuck away from me DNI
-<div align="center"> secret agent, surgeon and dr. harlow yume. hypersharing ^w^*
-
+<div align="center"> secret agent, surgeon and dr. harlow yume. selective sharing
 <div align="center"> .
 
- [atabook](https://malharejayexe.atabook.org/) ꒰🩺꒱✮⋆ [straw](still a wip, no strawpage for you!)
+ [atabook](https://malharejayexe.atabook.org/) ꒰🩺꒱✮⋆ [straw](https://yourlocaljayjay.straw.page)
   
 <div align="center"> <img width="99" height="56" alt="Image" src="https://github.com/user-attachments/assets/77377ebd-4d26-4a20-8f0e-6fb764beb279" />
 
